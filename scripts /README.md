@@ -1,1 +1,0 @@
-allar skriptur!
